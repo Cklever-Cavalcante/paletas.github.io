@@ -1,1 +1,3 @@
 # paletas.github.io
+
+https://designshack.net/articles/trends/best-website-color-schemes/
